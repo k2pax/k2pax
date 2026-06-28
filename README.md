@@ -31,6 +31,5 @@ Mission Ready Comms
 ### Other Media
 
 You can find me at:
--
--
--
+- Website Coming Soon!
+- YouTube Comming Soon!-
